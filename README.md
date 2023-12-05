@@ -3,7 +3,12 @@
 
 ![BLACK CLOVER](https://static.wikia.nocookie.net/dubbing9585/images/f/f5/Black_Clover.jpg) 
 
+
+## ♣️𓆩🖤𓆪♧  **HOW IT STARTED**
+
 The encyclopedia of the Black Clover series by Yūki Tabata which started serialization in the Weekly Shōnen Jump magazine since February 16th, 2015. The Wiki's main task is to progressively collect and archive all Black Clover related materials into exclusive pages.
+
+![BLACK CLOVEER](https://static.wikia.nocookie.net/blackclover/images/a/a2/Black_Clover_title_art.png/revision/latest?cb=20150903080636)
 
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/4VxnHLTHyQsHjk9QAlLsmg?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
