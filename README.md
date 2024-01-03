@@ -13,7 +13,7 @@ The encyclopedia of the Black Clover series by Yūki Tabata which started serial
 
 In the world of Black Clover, Grimoires are special books made of mana, book that allows its user to **cast specific spells** that are far in advance of their own natural magical abilities A *grimoire「魔導書グリモワール gurimowāru」* is one of the primary sources of power for the Magic Knights and other mages on the continent of the *Clover, Diamond, Heart, and Spade Kingdoms.*
 
-![grimoire](https://fictionhorizon.com/wp-content/uploads/2022/03/Augustus_grimoire.png)
+![grimoire](https://i.pinimg.com/originals/04/35/bc/0435bcad7f1c35886f46a2fdb899a22d.jpg)
 
 ## .𖥔🔮ִ ✮⋆˙ **MAGIC**
 
