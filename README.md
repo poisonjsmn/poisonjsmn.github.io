@@ -7,7 +7,7 @@
 
 The encyclopedia of the Black Clover series by Yūki Tabata which started serialization in the Weekly Shōnen Jump magazine since February 16th, 2015. The Wiki's main task is to progressively collect and archive all Black Clover related materials into exclusive pages. May you find the **magic** through your **own grimoire**—this page. 
 
-![BLACK CLOVER](https://static.wikia.nocookie.net/blackclover/images/a/a2/Black_Clover_title_art.png/revision/latest)
+![BLACK CLOVER](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/af0780f2-3a1a-488f-b144-9f10cc8908e3/dbf9jc5-d4273dbf-f7dd-493d-8536-3f6640bb88d6.png/v1/fill/w_1024,h_576,q_80,strp/logo_black_clover_wallpaper_by_fikarkyu_dbf9jc5-fullview.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTc2IiwicGF0aCI6IlwvZlwvYWYwNzgwZjItM2ExYS00ODhmLWIxNDQtOWYxMGNjODkwOGUzXC9kYmY5amM1LWQ0MjczZGJmLWY3ZGQtNDkzZC04NTM2LTNmNjY0MGJiODhkNi5wbmciLCJ3aWR0aCI6Ijw9MTAyNCJ9XV0sImF1ZCI6WyJ1cm46c2VydmljZTppbWFnZS5vcGVyYXRpb25zIl19.p_KhqgfcvLeInmPZzqmGiOote9-jUf3bojdnuK6xzCc)
 
 ## 📓✧˖°. **GRIMOIRES GUIDE**
 
