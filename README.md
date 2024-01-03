@@ -17,7 +17,7 @@ In the world of Black Clover, Grimoires are special books made of mana, book tha
 
 ## .𖥔🔮ִ ✮⋆˙ **MAGIC**
 
-From Asta's **rare Anti-Magic** to Yuno's elemental Spirit Magic and the astonishing Time Magic wielded by Julius Novachrono, these one-*of-a-kind magic types* never cease to amaze. Let's delve into the fascinating world of Black Clover, exploring the best magic types and the characters who master them, showcasing the series' boundless creativity and enchanting charm. We have many on the list, but thr most powerful yet is anti magic, a *unique form of energy* used to **nullify** magic against spells, wielded by Asta the protagonist. 
+From Asta's **rare Anti-Magic** to Yuno's elemental Spirit Magic and the astonishing Time Magic wielded by Julius Novachrono, these one-*of-a-kind magic types* never cease to amaze. Let's delve into the **fascinating world** of Black Clover, exploring the best magic types and the characters who master them, showcasing the **series' boundless creativity and enchanting charm**. We have many on the list, but thr most powerful yet is anti magic, a *unique form of energy* used to **nullify** magic against spells, wielded by Asta the protagonist. 
 
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/4VxnHLTHyQsHjk9QAlLsmg?utm_source=generator&theme=0" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
